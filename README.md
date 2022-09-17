@@ -1,2 +1,4 @@
 - She/Her
+- Artist 
+  - Painting and Drawing
 - I like to create art that talks about the body
