@@ -1,4 +1,5 @@
 - She/Her
 - Artist 
   - Painting and Drawing
+  - Learning Interactive art
 - I like to create art that talks about the body
