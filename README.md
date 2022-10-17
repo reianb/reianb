@@ -2,4 +2,4 @@
 - Artist 
   - Painting and Drawing
   - Learning Interactive art
-- I like to create art that talks about the body
+- I like to create art that talks about the body. This includes but is not limited to the way in which I perceive my body, the beauty standards and objectification of women's bodies, and bodies in conversation with the Filipino culture.
